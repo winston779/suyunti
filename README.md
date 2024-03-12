@@ -1,6 +1,6 @@
 # 速云梯官网地址
 
-最新地址：[suyunti101.com](https://suyunti981.xyz/auth/register?code=PBnq)
+最新地址：[suyunti101.com](https://suyunti588.com/auth/register?code=PBnq)
 
 ## 简介
 
