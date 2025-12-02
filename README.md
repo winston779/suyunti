@@ -1,6 +1,6 @@
 # 速云梯官网地址
 
-最新地址：[suyunti557.com](https://suyunti70.xyz/auth/register?code=PBnq)
+最新地址：[suyunti557.com](https://suyunti72.xyz/auth/register?code=PBnq)
 
 ## 简介
 
@@ -10,7 +10,7 @@
 
 包年特惠 7折优惠代码：YYY11 
 
-结束时间2025.12.1
+结束时间2026.1.1
 
 ## 特色
 
